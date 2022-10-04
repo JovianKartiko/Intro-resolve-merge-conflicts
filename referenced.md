@@ -1,3 +1,0 @@
-# References
-
-#><>L<><LKNOD ottocat
